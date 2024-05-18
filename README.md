@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Heodile
+- 👀 I’m interested in scripting in roblox
+- 🌱 I’m currently learning : nothing
+- 🌙  Fun fact: i am devem of HSHubIx Script
